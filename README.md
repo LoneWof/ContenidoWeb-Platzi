@@ -19,3 +19,19 @@ http://linkshrink.net/7SlskO
 ## Taller de Startups
 
 http://linkshrink.net/7FhBcY
+
+Comunidad
+
+http://linkshrink.net/763M92
+
+Curso Android
+
+http://linkshrink.net/7NpEt5
+
+Curso Profesional de Git y Github
+
+http://linkshrink.net/7gqOZb
+
+Curso Profesional de Ruby on Rails
+
+http://linkshrink.net/7VsM6r
