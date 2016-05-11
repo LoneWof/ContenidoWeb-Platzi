@@ -20,18 +20,18 @@ http://linkshrink.net/7SlskO
 
 http://linkshrink.net/7FhBcY
 
-Comunidad
+## Comunidad
 
 http://linkshrink.net/763M92
 
-Curso Android
+## Curso Android
 
 http://linkshrink.net/7NpEt5
 
-Curso Profesional de Git y Github
+## Curso Profesional de Git y Github
 
 http://linkshrink.net/7gqOZb
 
-Curso Profesional de Ruby on Rails
+## Curso Profesional de Ruby on Rails
 
 http://linkshrink.net/7VsM6r
