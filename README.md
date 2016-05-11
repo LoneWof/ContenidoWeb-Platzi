@@ -2,22 +2,20 @@
 
 ## Curso Marketing Online
 
-https://mega.nz/#F!ZYAQXRSI!JGudgE8ekkgZzwlKnicakA
+http://linkshrink.net/7q9uVD
 
 ## Curso Profesional de Frontend 2015
 
-https://mega.nz/#F!EQRmyRiI!rwduu3aecjmOKP77Sny_Xg
+http://linkshrink.net/7pIZsE
 
 ## Curso Profesional de video para web
 
-https://mega.nz/#F!cFAGxTCY!pwCNwzxRZao5SPxeQshnrA
+http://linkshrink.net/7xgl50
 
 ## Patrones de Diseño
 
-https://mega.nz/#F!BIpVkR4S!8Tll32PQMAvNnExAVUhgAQ
+http://linkshrink.net/7SlskO
 
 ## Taller de Startups
 
-https://mega.nz/#F!cJoz3ToK!ISVfm9nP0nD5xtvQOFo9wQ
-
-
+http://linkshrink.net/7FhBcY
