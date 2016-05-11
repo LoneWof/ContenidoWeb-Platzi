@@ -1,5 +1,18 @@
 # ContenidoWeb-Platzi
 
+### Publicacion de Links nuevos semanalmente 
+## informacion del subida de nuevo material
+#### https://www.youtube.com/channel/UCb54GxETL5Ra2KJHwpAfRzw
+
+
+
+### Suscribanse y en los comentarios de cualquier video coloquen el nombre del curso que quieran
+
+
+
+
+
+
 ## Curso Marketing Online
 
 https://mega.nz/#F!ZYAQXRSI!JGudgE8ekkgZzwlKnicakA
