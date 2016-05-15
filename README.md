@@ -15,39 +15,40 @@
 
 
 
+# ContenidoWeb-Platzi
+
 ## Curso Marketing Online
 
-https://mega.nz/#F!ZYAQXRSI!JGudgE8ekkgZzwlKnicakA
+http://linkshrink.net/7q9uVD
 
 ## Curso Profesional de Frontend 2015
 
-https://mega.nz/#F!EQRmyRiI!rwduu3aecjmOKP77Sny_Xg
+http://linkshrink.net/7pIZsE
 
 ## Curso Profesional de video para web
 
-https://mega.nz/#F!cFAGxTCY!pwCNwzxRZao5SPxeQshnrA
+http://linkshrink.net/7xgl50
 
 ## Patrones de Diseño
 
-https://mega.nz/#F!BIpVkR4S!8Tll32PQMAvNnExAVUhgAQ
+http://linkshrink.net/7SlskO
 
 ## Taller de Startups
 
-https://mega.nz/#F!cJoz3ToK!ISVfm9nP0nD5xtvQOFo9wQ
+http://linkshrink.net/7FhBcY
 
-## Comunidad Platzi
+## Comunidad
 
-https://mega.nz/#F!8BATQTJK!6DUOuLw7ZlaN69Vdsq7cAw
+http://linkshrink.net/763M92
 
 ## Curso Android
 
-https://mega.nz/#F!JQBW3ISQ!MB5JWEcXIzxZ1VrHrS8SVA
+http://linkshrink.net/7NpEt5
 
 ## Curso Profesional de Git y Github
 
-https://mega.nz/#F!NcY2FYgQ!9tn0R7uNrSC-wfUJN_1K2Q
+http://linkshrink.net/7gqOZb
 
 ## Curso Profesional de Ruby on Rails
 
-https://mega.nz/#F!Jdgn3YyR!04H3F55LAge8eMoDFv-Row
-
+http://linkshrink.net/7VsM6r
